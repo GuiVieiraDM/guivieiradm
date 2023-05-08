@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 
 - 🔭 I’m currently working on my progress to the first job
